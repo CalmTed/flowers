@@ -1,4 +1,4 @@
-# other-projects
+# Flower projest
 This site is property of Ted Frost
 taking it or part of it please contact me: me@ted9.xyz
 
